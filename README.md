@@ -2,7 +2,7 @@
 redmi watch4 single install books do not over 1.3M size.!!???
 oh god damn!!!!!
 i have to write this code,for my device.
-let me ease work (touch fish)
+let me ease learn (touch fish)
 
 
 Main body
